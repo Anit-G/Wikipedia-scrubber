@@ -10,12 +10,21 @@ Thomas Alva Edison (February 11, 1847 – October 18, 1931) was an American inve
 Printing Information:-
 
 Born :   Thomas Alva Edison(1847-02-11)February 11, 1847Milan, Ohio, U.S.
+
 Died :   October 18, 1931(1931-10-18) (aged 84)West Orange, New Jersey, U.S.
+
 Burial place :   Thomas Edison National Historical Park
+
 Education :      Self-educated; some coursework at Cooper Union
+
 Occupation :     Inventor, businessman
+
 Years active :   1877–1930
+
 Spouse(s) :      Mary Stilwell (m. 1871; d. 1884) Mina Miller (m. 1886)
+
 Children :       6, including Madeleine Edison, Charles Edison, Theodore Miller Edison, Thomas Alva Edison Jr.
+
 Relatives :      Lewis Miller (father-in-law)
+
 Signature :
